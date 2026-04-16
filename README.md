@@ -62,7 +62,7 @@ C'est la question que je pose à chaque artisan, commerçant ou dirigeant de TPE
 
 > *"Avant, je passais des heures sur mes devis. Maintenant c'est automatique."*
 
-> *"J'ai enfin une communication régulière sur LinkedIn sans y passer mes soirées."*
+> *"J'ai enfin toute mes informations centralisé dans une seul endroit et tout communique ensemble."*
 
 ---
 
